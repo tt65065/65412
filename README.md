@@ -20,4 +20,4 @@
 
 建议将本站加入你的收藏夹，每天打开看看，不错过任何一部你真正想看的日本AV新片。在这里，看得舒心，搜得安心，是我们始终坚持的服务原则。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/tt65065/65412 ）</span>
